@@ -1,4 +1,4 @@
-
+ClickUp for macOS advanced Macro - task automation and offline access offers the most advanced ClickUp for macOS macro, with task automation and offline access. Ideal for
 
 
 
